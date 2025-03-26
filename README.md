@@ -1,4 +1,4 @@
-Is TradeEU Global a Scam or Legit? A Positive Review of the Broker
+Is TradeEU Global a Scam or Legit? Full TradeEU Global Review of the Broker
 ======================================================
 
 Introduction
