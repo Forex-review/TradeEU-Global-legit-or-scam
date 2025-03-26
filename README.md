@@ -9,7 +9,7 @@ Having used TradeEU Global for my trading activities over an extended period, I 
 
 
 
-![image]()
+![image](https://github.com/Forex-review/TradeEU-Global-legit-or-scam/blob/8dbb3fe4d58ac9ad895b8d28bf5f55f6ad57b608/tradeeu%20global%20home.jpeg)
 
 What is TradeEU Global?
 --------------------
